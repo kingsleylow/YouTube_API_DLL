@@ -45,4 +45,4 @@ Profile
 Website: https://rkocyrus.github.io  
 Youtube: https://www.youtube.com/user/long1212cn  
 Facebook: https://www.facebook.com/rk0dd/  
-Twitter: https://twitter.com/rk0cc  
+Twitter: https://twitter.com/rk0cc & https://twitter.com/rk0dd (Current suspend due to appealing)
